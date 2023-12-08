@@ -1,1 +1,1 @@
-# syte1 only portfolio syte
+# only portfolio syte
